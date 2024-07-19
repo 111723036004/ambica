@@ -1,1 +1,1 @@
-# ambica
+Meaning “mother” and “good woman,” Ambika celebrates femininity in all its glory. An epithet for Mahadevi and Parvati, Ambika has celestial and faithful undertones with its connection to supreme maternal goddesses.# ambica
